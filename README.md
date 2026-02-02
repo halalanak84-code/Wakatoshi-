@@ -1,2 +1,3 @@
 # Wakatoshi-
-ini adalah planing 5 tahun ke depan
+ini adalah planing 1 tahun ke depan anjay
+jadi youtuber 
